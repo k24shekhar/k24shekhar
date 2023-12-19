@@ -6,7 +6,7 @@
 
 - 🌱 I’m currently learning **PowerBI**
 
-- 📫 How to reach me **shekhar.shende@asmedu.org**
+- 📫 How to reach me **k24shekhar@gmail.com**
 
 - 📄 Know about my educations [https://drive.google.com/file/d/13LZLLeBl1ghaq_0hvXuOB21L3ZfXeOp_/view?usp=drive_link](https://drive.google.com/file/d/13LZLLeBl1ghaq_0hvXuOB21L3ZfXeOp_/view?usp=drive_link)
 
